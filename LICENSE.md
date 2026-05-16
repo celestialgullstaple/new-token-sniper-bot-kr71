@@ -1,4 +1,4 @@
-# 
+# high-frequency new token sniper bot | multi-wallet-support + take-profit is the best new token sniper bot, featuring multi-wallet-support and take-profit. Fast, smart, and
 
 
 
